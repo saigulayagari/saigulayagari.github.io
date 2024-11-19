@@ -1,4 +1,5 @@
-# SAI Kumar Gulayagari
+# **SAI Kumar Gulayagari**
+[Email](mailto:Sai.gulayagarai@gmail.com). 
 
 ## Education
 - **MS in Supply Chain Management**  
