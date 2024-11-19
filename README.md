@@ -1,5 +1,5 @@
 # **SAI Kumar Gulayagari**
-[Email](mailto:Sai.gulayagarai@gmail.com). 
+Phone-3147606112 [Email](mailto:Sai.gulayagarai@gmail.com). | [LinkedIn](https://www.linkedin.com/in/sai-kumar-gulayagari-0b77072a5/) 
 
 ## Education
 - **MS in Supply Chain Management**  
